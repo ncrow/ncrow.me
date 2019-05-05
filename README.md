@@ -1,7 +1,1 @@
 # ncrow.me
-
-
-# Education
-
-
-# Jobs
